@@ -1,1 +1,0 @@
-I will suicide soon cuz 미개 후진국 한국인들의 "하는 척"
